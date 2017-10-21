@@ -8,7 +8,7 @@ So I thought, how would other people find out about this?
 
 There is no way to rate pasta that is sold in the supermarket. There are no testimonials, or they're scattered/imbalanced when you shop online. What if there was a place where you go for your pasta choices? It's ridiculous, of course, but also so niche that it might be helpful.
 
-And I definitely felt vindictive after that horrific past experience.
+And I definitely felt vindictive after that horrific past-a experience.
 
 *A word on my skills*
 
